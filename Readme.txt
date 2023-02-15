@@ -1,1 +1,1 @@
-Natallia Mialeshka
+N. M.
